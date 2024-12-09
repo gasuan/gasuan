@@ -1,2 +1,2 @@
 
-![](https://tenor.com/ru/view/blinkies-nyan-cat-spacehey-gif-1555932865318229242)
+![](https://drive.google.com/file/d/1-U8SHobgst-8Juu3oLR_OcPqBJ_iDliR/view?usp=drivesdk)
