@@ -70,7 +70,6 @@
 ![](https://drive.google.com/uc?id=14hRUhYe4lp7UrDAWKg96NUrXBSl2Dn6e) 
 ![](https://drive.google.com/uc?id=14_4fP3OuMVlj3dAaBxiUdeyj0iu6pTBa) 
 ![](https://drive.google.com/uc?id=14ZDAq_ziiEqsjOOiQ1x61biQ-YeDQw7m) 
-![](https://drive.google.com/uc?id=14ZDAq_ziiEqsjOOiQ1x61biQ-YeDQw7m) 
 
 ![](https://drive.google.com/uc?id=17_F63ngjKLAm66C38pKvPBY50i0z0prQ) 
 ![](https://drive.google.com/uc?id=17bzMGXRLZf_TSu7sT1QfIDhYPkqCRnWn) 
